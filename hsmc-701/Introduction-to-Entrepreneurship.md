@@ -138,5 +138,3 @@ Entrepreneurship always dances between risk and reward—the trick is managing t
 
 # **Summary in One Line**  
 Entrepreneurship is not just starting a business; it’s a mindset of turning opportunities into real value while navigating risks, innovating, and contributing to society’s economic, social, and cultural well-being.  
-
---- 
