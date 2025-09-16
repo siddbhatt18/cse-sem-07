@@ -1,7 +1,5 @@
 # **Study Notes: Introduction to Entrepreneurship**
 
----
-
 ## **1. Defining Entrepreneurship: Multiple Perspectives**
 
 Entrepreneurship is a multifaceted concept—its meaning evolves depending on which lens you wear:  
